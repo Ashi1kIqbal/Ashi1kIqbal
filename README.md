@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aiqbal02@niter.edu.bd**
 
-- ⚡ Fun fact **Noting is hard if you are in sleep.**
+- ⚡ Fun fact **Craving is the key of success.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
